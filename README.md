@@ -6,3 +6,12 @@ The weekend looks so entertaining as three of the top teams are set to challenge
 
 **Analysis**
 
+![Mexican GP Qualifying Analysis](https://user-images.githubusercontent.com/93969104/198853220-22d7e2f4-59bf-4e2c-b9d7-c9a4d4a37ee7.jpg)
+
+**Key Points**
+
+1. Mercedes W13 was very strong throughout the middle sector.
+
+2. The Red Bull RB18 is still the strongest when it comes to straight line speed.
+
+3. Ferrari F1-75 corner exits are very unstable.
